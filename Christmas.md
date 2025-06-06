@@ -1,9 +1,5 @@
-- An air fryer that isn't a low-key fire hazard
+- [Ohuhu acrylic paint markers](https://global.ohuhu.com/products/dual-nib-acrylic-pen-30-colors?shpxid=213f3853-3e9f-4d87-97d9-33d789387ddb&utm_source=YouTube&utm_medium=TheStarfishface&utm_campaign=YTKOLEva)
 
-- Wind and Truth (Stormlight Archive, volume 5), by Brandon Sanderson
+- A tall pepper grinder with good capacity
 
-- https://store.dftba.com/products/jacob-horse-plushie
-
-- Screenplay: The Foundations of Screenwriting, by Syd Field
-
-- Story: Substance, Structure, Style and the Principles of Screenwriting, by Robert McKee
+- [Jacob-horse plushie](https://store.dftba.com/products/jacob-horse-plushie)
