@@ -2,4 +2,8 @@
 
 - A tall pepper grinder with good capacity
 
-- [Jacob-horse plushie](https://store.dftba.com/products/jacob-horse-plushie)
+- [On Writing and Worldbuilding, Vol. I](https://www.barnesandnoble.com/w/on-writing-and-worldbuilding-timothy-hickson/1138451224)
+
+- [On Writing and Worldbuilding, Vol. II](https://www.barnesandnoble.com/w/on-writing-and-worldbuilding-timothy-hickson/1140455186)
+
+- [On Writing and Worldbuilding, Vol. III](https://www.barnesandnoble.com/w/on-writing-and-worldbuilding-timothy-hickson/1144307719)
