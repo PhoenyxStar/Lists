@@ -7,3 +7,5 @@
 - [On Writing and Worldbuilding, Vol. I](https://www.barnesandnoble.com/w/on-writing-and-worldbuilding-timothy-hickson/1138451224)
   - [Vol. II](https://www.barnesandnoble.com/w/on-writing-and-worldbuilding-timothy-hickson/1140455186)
   - [Vol. III](https://www.barnesandnoble.com/w/on-writing-and-worldbuilding-timothy-hickson/1144307719)
+
+- [Rune Factory: Guardians of Azuma (Steam)](https://store.steampowered.com/app/2864560/Rune_Factory_Guardians_of_Azuma/)
